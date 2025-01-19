@@ -1,1 +1,1 @@
-# apping-the-Rhythms-of-Seismic-Stories
+# Mapping-the-Rhythms-of-Seismic-Stories
